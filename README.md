@@ -71,7 +71,8 @@ This project demonstrates how Excel can be used to build a clean, interactive da
 
 **Diana** – Data Analyst skilled in Excel, Power BI, and SQL, turning data into clear, interactive insights.
 
-📫 Connect with me on [LinkedIn](http://www.linkedin.com/in/diana-njogu-a92573338)
+📫 Connect with me on  🔗 [LinkedIn](http://www.linkedin.com/in/diana-njogu-a92573338),   🎨[Fever](https://www.fiverr.com/diana_njogu3/buying?source=avatar_menu_profile)
+
 
 ---
 
